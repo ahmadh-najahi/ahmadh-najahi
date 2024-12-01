@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hello!!! I'm Najahi...!!!
 🔭 I’m currently working on my own projects<br>👯 I’m looking to collaborate on industrial developers<br>🤝 I’m looking for help with IT field workers<br>🌱 I’m currently learning AI & Machine Learning<br>💬 Ask me about ahmednajahi2003@gmail.com<br>⚡ Fun fact call me as JK
 
 
